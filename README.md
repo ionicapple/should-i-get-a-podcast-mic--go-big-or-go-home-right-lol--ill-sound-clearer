@@ -1,0 +1,1 @@
+# should-i-get-a-podcast-mic--go-big-or-go-home-right-lol--ill-sound-clearer
